@@ -103,7 +103,7 @@ $150/人/天（视天气行程安排）如果钓大鱼需要租用电动轮$50/�
 
 - 亮点：矿石收藏 & 认识矿物（纯体力活，能挖到什么随缘，我们去的时候挖到了很多漂亮的矿石，哥哥也是这时候喜欢上化学的，彩矿石的不同颜色是因为不同的化学元素的影响）[锻炼身体的一天](http://xhslink.com/o/6IMkreZYHUE)
 - 官网：[digforgems.com](https://digforgems.com/)
-- 地址：[地图](https://www.google.com/maps/search/?api=1&query=Oceanview+Pala+Chief+Gem+Mines)
+- 地址：[37304 Magee Rd, Pala, CA 92059](https://www.google.com/maps/search/?api=1&query=Oceanview+Pala+Chief+Gem+Mines)
 - 时间：早上 9:30 开始（需官网预约）
 - 费用：成人及 12 岁以上 $75/人，5～11 岁 $60/人
 
@@ -138,7 +138,7 @@ $150/人/天（视天气行程安排）如果钓大鱼需要租用电动轮$50/�
 - 亮点：真的很香，让鼻子加班的一天，特别喜欢。（我们在这里学到了当非常多的气味，混乱我们的嗅觉的时候，可以用咖啡豆去清除香味对嗅觉的干扰）[我是小小调香师](http://xhslink.com/o/2JgJSEM4mD)
 - 官网：[sonnisldiy.com](https://www.sonnisldiy.com/)
 - 地址：[2233 W Balboa Blvd Suite 107, Newport Beach, CA 92663](https://www.google.com/maps/search/?api=1&query=2233+W+Balboa+Blvd+suite+107+Newport+Beach+CA+92663-4645)
-- 小红书：1578836265
+- 小红书：`1578836265`
 
 ---
 
