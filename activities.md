@@ -148,7 +148,7 @@ $150/人/天（视天气行程安排）如果钓大鱼需要租用电动轮$50/�
 
 **Happy Hippo**
 
-- 亮点：这里我称他为[拼豆](http://xhslink.com/o/2weRHVg47yt)届的卷王中王，当然也可以做手工蜡烛、卷棒娃娃、奶油胶。但我最喜欢的是他们家的3D打印服务。
+- 亮点：这里我称他为[拼豆](https://yunze229.github.io/posts/2026-05-21-bead-sprites/)届的卷王中王，当然也可以做手工蜡烛、卷棒娃娃、奶油胶。但我最喜欢的是他们家的3D打印服务。
 - 官网：[happyhippo.life](http://www.happyhippo.life)
 - 地址：[530 Technology Drive, Suite 100, #263, Irvine, CA 92618](https://www.google.com/maps/search/?api=1&query=530+Technology+Drive+Suite+100+263+Irvine+CA+92618)
 - 微信：`hero-xiaoxu`
@@ -175,12 +175,13 @@ $150/人/天（视天气行程安排）如果钓大鱼需要租用电动轮$50/�
 - 地址：[4233 Santa Anita Ave #7, El Monte, CA 91731](https://www.google.com/maps/search/?api=1&query=4233+Santa+Anita+Ave+7+El+Monte+CA+91731)
 - 微信：`CloudAviation`
 
-### 室内跳伞 
+### 室内跳伞
 
 **ifly**
 
 - 亮点：[室内跳伞🪂](http://xhslink.com/o/1OpCGw7ScWf)，跳伞运动的必修课。结合空气动力学理论与体感训练，学习如何用身体姿态（拱背、伸展、微调手脚角度）控制气流与升力，建立自由落体中的本体感知。
 - 官网：[https://www.iflyworld.com/](https://www.iflyworld.com/)
+
 ---
 
 ## 🎯 八、竞技 · 极限 · 速度类
