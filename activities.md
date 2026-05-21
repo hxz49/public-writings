@@ -180,7 +180,7 @@ $150/人/天（视天气行程安排）如果钓大鱼需要租用电动轮$50/�
 **ifly**
 
 - 亮点：[室内跳伞🪂](http://xhslink.com/o/1OpCGw7ScWf)，跳伞运动的必修课。结合空气动力学理论与体感训练，学习如何用身体姿态（拱背、伸展、微调手脚角度）控制气流与升力，建立自由落体中的本体感知。
-- 官网：[https://www.iflyworld.com/](https://www.iflyworld.com/)
+- 官网：[https\://www\.iflyworld.com/](https://www.iflyworld.com/)
 
 ---
 
@@ -252,7 +252,11 @@ $150/人/天（视天气行程安排）如果钓大鱼需要租用电动轮$50/�
 
 **Los Angeles Rifle & Revolver Club**
 
-- 亮点：便宜，非营利组织，一个家庭的年费是 $100，奥运冠军亲自指导。需要先上安全课。
+- 亮点：便宜，非营利组织，一个家庭的年费是 $100，世界冠军亲自指导。需要先上安全课。
 - 官网：[larrclub.org](https://www.larrclub.org/)
 - 地址：[1700 Loma Ave, South El Monte, CA 91733](https://www.google.com/maps/place/1700+Loma+Ave,+South+El+Monte,+CA+91733/@34.0465085,-118.0718676,17z/data=!3m1!4b1!4m6!3m5!1s0x80c2d05ef049044d:0x31b8c7ae750c633a!8m2!3d34.0465041!4d-118.0692873!16s%2Fg%2F11c4df2_w3?entry=ttu&g_ep=EgoyMDI2MDUxMy4wIKXMDSoASAFQAw%3D%3D)
 
+### 南极
+
+[南极日记](https://drive.google.com/file/d/1bP34orZ1SZeKlOT20ejmV1Wfzjs3fYK1/view?usp=drive_link)
+[南极视频](https://drive.google.com/file/d/1bP34orZ1SZeKlOT20ejmV1Wfzjs3fYK1/view?usp=drive_link)
