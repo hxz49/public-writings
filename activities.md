@@ -46,7 +46,7 @@ $150/人/天（视天气行程安排）如果钓大鱼需要租用电动轮$50/�
 
 ### 钓龙虾
 
-亮点：又是吃自助餐的一天。可以租船出去钓，也可以在下面几个码头钓。[快来看看我们的海底捞](http://xhslink.com/o/1l6tcnSY6om)
+亮点：又是吃自助餐的一天。可以租船出去钓，也可以在下面几个码头钓。快来看看我们的[海底捞](http://xhslink.com/o/77TVKU4r0AG)
 
 地点：
 
@@ -111,7 +111,7 @@ $150/人/天（视天气行程安排）如果钓大鱼需要租用电动轮$50/�
 
 **Gem Studio**
 
-- 亮点：可打磨自带宝石、做手链、永久手链。上次挖的采矿原石，可以拿来打磨得更精致。
+- 亮点：可打磨[自带宝石](https://yunze229.github.io/posts/2026-05-21-gem-studio/)、做手链、永久手链。上次挖的采矿原石，可以拿来打磨得更精致。
 - 官网：[gemstudio.com](https://www.gemstudio.com/)
 - 地址：[766 Spectrum Center Dr, Irvine, CA 92618](https://www.google.com/maps/search/?api=1&query=766+Spectrum+Center+Dr+Irvine+CA+92618)（between Studs + Quay）
 
@@ -175,6 +175,12 @@ $150/人/天（视天气行程安排）如果钓大鱼需要租用电动轮$50/�
 - 地址：[4233 Santa Anita Ave #7, El Monte, CA 91731](https://www.google.com/maps/search/?api=1&query=4233+Santa+Anita+Ave+7+El+Monte+CA+91731)
 - 微信：`CloudAviation`
 
+### 室内跳伞 
+
+**ifly**
+
+- 亮点：[室内跳伞🪂](http://xhslink.com/o/1OpCGw7ScWf)，跳伞运动的必修课。结合空气动力学理论与体感训练，学习如何用身体姿态（拱背、伸展、微调手脚角度）控制气流与升力，建立自由落体中的本体感知。
+- 官网：[https://www.iflyworld.com/](https://www.iflyworld.com/)
 ---
 
 ## 🎯 八、竞技 · 极限 · 速度类
